@@ -1,7 +1,1 @@
 # Velmora.io
-# Velmora.io
-# Velmora.io
-# Velmora.io
-# Velmora.io
-# website
-# Velmora.io
